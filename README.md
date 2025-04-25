@@ -1,3 +1,0 @@
-# Codes
-author - naveed hasan
-
